@@ -1,1 +1,0 @@
-omarbekov timur
